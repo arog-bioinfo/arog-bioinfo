@@ -1,4 +1,4 @@
-# Welcome to my GitHub
+# Hi there 👋
 
 I recently graduated with a Bachelor's degree in Biochemistry and I am highly motivated to pursue a career in Bioinformatics. To explore this interest, I completed my Bachelor's degree project on the state-of-the-art advancements in de novo genome assembly. I'm planning to further deepen my knowledge by pursuing a Master's degree in Bioinformatics.
 
