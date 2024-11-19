@@ -4,6 +4,6 @@ I recently graduated with a Bachelor's degree in Biochemistry and I am highly mo
 
 Beyond academics, I bring a strong work ethic and a collaborative spirit honed through my experience as an international football goalkeeper for the Portuguese National Team. I'm also an enthusiastic gamer, which fuels my analytical and problem-solving skills.
 
-This new adventure is going to be a treacherous journey, but I will prevail.
+This Master's degreee is going to be a treacherous journey, but I will prevail.
 
 "The fallen leaves tell a story. Of how a Tarnished became Elden Lord." - Elden Ring (2022)
